@@ -1,4 +1,3 @@
-# 💫 About Me:
 🫡Hi, I'm Arjan den Hartog<br>🏫Studying HBO-ICT on Christelijke Hogeschool in Ede<br>
 
 ## 🌐 Socials:
